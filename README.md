@@ -4,5 +4,5 @@
 - 📫 How to reach me: approvedcryforever@outlook.com
 - ⚡ Fun fact: I'm not a ROBOT ^^
 
-- HOPE YOU HAVE A NIEC DAY!!!
+- HOPE YOU HAVE A NICE DAY!!!
 
